@@ -8,6 +8,12 @@ In the game, each box has two states, namely the free state (white block) and th
 
 1. Simple operation, adults and children can easily experience;
 
+2. It is not just a simple entertainment game, you can also detect and exercise the memory strength. Two birds with one stone;
+
+3. There are 7 colors you can choose, pick anyone you want.
+
+This is a very interesting game which can test the player's sight and patience. Come on, let's try it.
+
 Tel:+61418451265
 
 Email:k6c8mw@163.com
